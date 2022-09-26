@@ -1,5 +1,5 @@
 NFL ON THE YARD
 
-Website for recruiters to find HBCU sport talents
+Website for recruiters to find HBCU sport talents. Link to website video down below
 
-https://drive.google.com/drive/folders/18Q2u-iG6WHs3nAUdHGR1tRgvVwTBTIyn?usp=sharing
+https://drive.google.com/file/d/1N8GlT_3GKmx3uy0qXYIssKH-RCJkLoVL/view?usp=sharing 
